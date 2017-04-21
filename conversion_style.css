@@ -1,0 +1,16 @@
+* {
+width : 100%;
+padding : 0;
+margin  0;
+box-sizing: border-box;
+}
+
+html {
+height : 100%;
+weight : 100%;
+}
+
+body {
+height : 100%;
+weight : 100%;
+}
