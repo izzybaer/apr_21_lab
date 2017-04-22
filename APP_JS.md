@@ -27,6 +27,8 @@ Q: Why did the lions eat the preacher?
 
 A: because he told them that they must put away their pride!
 
+On second thought, these jokes are terrible. Unlike lions, who are greater than goats.
+
 
 hhhhhhhhhhhhhhhaaaaaaaaaaaaaappppppppppppppppppppppppppppppppyyyyyyyyyyyyyyy   ffffffffffffrrrrrrrrrrriiiiiiiiidddddddddaaaaaaaaaaaayyyyyyyyyyyyyy!!!!!!!!!!!!!!!!!!!!!!
 
